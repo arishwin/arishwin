@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **arishwinkishaan3@gmail.com**
 
-- 📄 Know about my experiences [https://www.dropbox.com/s/aqd68620czxrymx/resume.pdf?dl=0](https://www.dropbox.com/s/aqd68620czxrymx/resume.pdf?dl=0)
+- 📄 Know about my experiences [Resume](https://www.dropbox.com/s/j1c6oc453ebqg11/arishwin_resume_april.pdf?dl=0)
 
 - ⚡ Fun fact **I love to play badminton 🏸**
 
